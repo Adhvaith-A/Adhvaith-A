@@ -1,7 +1,7 @@
 # Adhvaith A
 **Mechanical Engineering|Quantitative Research | High-Performance Infrastructure**
 
-[LinkedIn](https://www.linkedin.com/in/adhvaith-anand/) | 
+[LinkedIn](https://www.linkedin.com/in/adhvaith-anand/) 
 
 ---
 
